@@ -1,6 +1,6 @@
 # 당신의 캠핑과 함께합니다
 
-![로고](https://user-images.githubusercontent.com/85085375/203308146-170ffd51-9d46-4750-9282-2125f601b3af.png)
+![CAMPus_사업계획서](https://user-images.githubusercontent.com/85085375/205206074-5217bc27-8d44-4301-811b-31a1920d7440.jpg)
 
 ![슬라이드2](https://user-images.githubusercontent.com/85085375/205205517-2dedca0b-63cd-486e-a617-1f27a5435797.PNG)
 
