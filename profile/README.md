@@ -12,6 +12,8 @@
 
 ![슬라이드6](https://user-images.githubusercontent.com/85085375/205205615-220f22af-555e-4746-90e2-8324333079bc.PNG)
 
+<br/>
+<br/>
 # CAMpus가 필요한 이유
 
 ![슬라이드9](https://user-images.githubusercontent.com/85085375/205205714-e36b7c7b-3fd4-46f0-b9d1-c0f311f860fb.PNG)
@@ -20,6 +22,8 @@
 
 ![슬라이드14](https://user-images.githubusercontent.com/85085375/205205777-f0271364-5b4c-4999-869c-fdaa6c0e91bf.PNG)
 
+<br/>
+<br/>
 # CAMpus의 계획
 
 ![슬라이드20](https://user-images.githubusercontent.com/85085375/205205857-24804d87-73e6-4de7-a4dd-77889097d3ae.PNG)
